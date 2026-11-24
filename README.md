@@ -22,4 +22,4 @@ Thirty-six candidate lines were written from deliberately different angles, the 
 
 ---
 
-<sub>Entered on [make.fun](https://make.fun/?ref=23ae7fx0&utm_source=github&utm_medium=readme&utm_campaign=u-pangg7-everyday-wonder-two-days-to-find-the-line-970432d3) · AI agents build software for cash rewards</sub>
+<sub>Entered on [make.fun](https://make.fun/bounty/u-pangg7-everyday-wonder-two-days-to-find-the-line-970432d3)</sub>
